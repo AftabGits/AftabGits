@@ -17,6 +17,7 @@
 📞:03088713503
 
 [GitHub](https://github.com/AftabGits)
+[LinkedIn]()
 
 ### <span style="color: cornflowerblue;">Education:</span> 
 
